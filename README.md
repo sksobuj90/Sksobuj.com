@@ -1,2 +1,0 @@
-# Sksobuj.com
-S ksobuj 
